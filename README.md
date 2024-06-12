@@ -49,7 +49,7 @@
 
 
 <h3 align="left">LinkedIn:</h3>
-https://www.linkedin.com/in/abhishek-rai-8b3634169/
+https://www.linkedin.com/in/subham-kumar-singh-1249741a3/
 
 
 
